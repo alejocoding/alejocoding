@@ -24,7 +24,7 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about **Html, css, python ,java**
 
-- 📫 How to reach me **alejoreyvm@gmail.com**
+- 📫 How to reach me **alejoreyvm@hotmail.com**
 
 - ⚡ Fun fact **Fav Deport Voleyball**
 
